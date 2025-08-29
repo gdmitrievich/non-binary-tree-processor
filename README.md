@@ -4,6 +4,10 @@
 
 <p align="center">
 
+
+https://github.com/user-attachments/assets/e1c55872-0fc1-48d7-ae43-c3dc3c55bc95
+
+
 </p>
 
 ## Experience
